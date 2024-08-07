@@ -9,5 +9,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with learning how to use the github
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I like to eat watermelon
-- 📫 **How you will be able to find my instagram:
+- 📫 **How you will be able to find my instagram:**
 - **@emanuel.zncs**
+**00001113545999sp@al.educacao.sp.gov.br**
