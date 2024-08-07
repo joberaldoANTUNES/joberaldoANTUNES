@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I like to eat watermelon
 - 📫 **How you will be able to find my instagram:**
-- **@emanuel.zncs**
+- **@emanuel.zncs** /
 **00001113545999sp@al.educacao.sp.gov.br**
